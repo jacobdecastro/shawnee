@@ -45,12 +45,12 @@ Apprentice assists the Technical Designer and Lead Painter in painting up to 6 s
 
 ### Each apprentice will:
 
-•	When available serve in FOH duties, stagehands/run crew for all shows (unless performing), assist with camps, etc.
-•	Will not work more than 20 - 30 hours a week (unless performing or preparing for a production) Please note, acting apprentices work at least 40 hours a week. 
-•	Will be provided housing/food as needed
-•	$100/weekly for High School Students & $125/weekly for College Students
-•	Experienced members of Shawnee Staff will provide Masterclasses (3 – 5) during the summer
-•	At the completion of the summer each apprentice will have professional credits to their resume 
+*	When available serve in FOH duties, stagehands/run crew for all shows (unless performing), assist with camps, etc.
+*	Will not work more than 20 - 30 hours a week (unless performing or preparing for a production) Please note, acting apprentices work at least 40 hours a week. 
+*	Will be provided housing/food as needed
+*	$100/weekly for High School Students & $125/weekly for College Students
+*	Experienced members of Shawnee Staff will provide Masterclasses (3 – 5) during the summer
+*	At the completion of the summer each apprentice will have professional credits to their resume 
 
 ### Questions?
 
